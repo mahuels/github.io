@@ -7,4 +7,8 @@ Nach den viel zu langen Trump-Jahren kommt einem Andrew Shepherd, der US-Präsid
 * Vater einer Tochter
 * verliebt sich in eine Umweltaktivistin
 
+## Ein Zitat:
+Shepherd:
+> Präsident dieses Landes zu sein, hat zur Gänze mit Charakter zu tun.
+
 
