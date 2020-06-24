@@ -1,2 +1,2 @@
 # Andrew Shepherd in Hello, Mr. President
-## Wie Amerika aussehen könnte
+## Wie Amerika aussehen kÃ¶nnte
