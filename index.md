@@ -11,4 +11,5 @@ Nach den viel zu langen Trump-Jahren kommt einem Andrew Shepherd, der US-Präsid
 Shepherd:
 > Präsident dieses Landes zu sein, hat zur Gänze mit Charakter zu tun.
 
+<img src="https://cdn.pixabay.com/photo/2012/02/18/22/54/barack-14774__340.jpg"/>
 
